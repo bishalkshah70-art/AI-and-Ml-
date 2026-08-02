@@ -1,1 +1,1 @@
-fuck jupiter
+i fuck python on daily basis
